@@ -1,1 +1,1 @@
-Recriação página pessoal Ivo Pitz.
+Recreating Ivo Pitz' personal page.
